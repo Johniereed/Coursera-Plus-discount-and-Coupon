@@ -2,7 +2,7 @@
 
 Looking for [Coursera plus Discount](https://bit.ly/3UWpJvx) deals?
 
-You are at the right place I have listed all the latest Coursera deals & promo codes, such as the 40% Coursera Plus deal.
+You are at the right place I have listed all the latest [Coursera discounts](https://johniereed.github.io/coursera-plus-discount-/) & promo codes, such as the 40% Coursera Plus deal.
 
 With this deal, you may access thousands of courses and get the annual plan for a 40% discount.
 
